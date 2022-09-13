@@ -7,4 +7,4 @@ Make sure to
 - try some Sri Lankan arrack
 - go on more holidays
 - ride a motorcycle
- - and always, ALWAYS, eat chocolate
+- and always, ALWAYS, eat chocolate
